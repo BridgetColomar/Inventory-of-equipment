@@ -1,2 +1,2 @@
-![image](https://github.com/user-attachments/assets/b616c802-e491-4478-978c-167b71c351d3)
+![image](https://github.com/user-attachments/assets/c71e6a11-adf9-47d2-aa31-a4c7db681e7c)
 # Inventory-of-equipment
