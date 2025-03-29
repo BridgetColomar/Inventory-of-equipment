@@ -1,3 +1,3 @@
-![2025-03-21_16-04-51](https://github.com/user-attachments/assets/0a0ee768-dde5-4f8b-854a-e065f20ef41b)
+![Uploading free-icon-wooden-crate-16922513 (1).png…]()
 
 # Inventory-of-equipment
